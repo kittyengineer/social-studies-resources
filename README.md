@@ -8,3 +8,5 @@
 [Roman Footwear](http://ancienthistory.about.com/od/clothing/qt/010511-Roman-Sandals-And-Other-Footwear.htm) - This site is on Roman footwear.
 
 -[Roman Food/Dining Culture](http://www.romanfood.org/http://www.cooksinfo.com/roman-food) - This site is on roman food and eating customs.
+
+[Roman manners and etiquette](http://cecilymowadarh303.blogspot.com/2011/10/proper-etiquette-in-ancient-greece.html) - This site is on Roman manners
