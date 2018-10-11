@@ -12,4 +12,4 @@
 [Roman manners and etiquette](http://cecilymowadarh303.blogspot.com/2011/10/proper-etiquette-in-ancient-greece.html) - This site is on
 Roman manners and etiquette
 
-[Ancient Roman Medicine and Public Health] (http://www.historylearningsite.co.uk/medicine_in_ancient_rome.htm) - This site is on ancient Roman medicines and on public health
+[Ancient Roman Medicine and Public Health](http://www.historylearningsite.co.uk/medicine_in_ancient_rome.htm) - This site is on ancient Roman medicines and on public health
